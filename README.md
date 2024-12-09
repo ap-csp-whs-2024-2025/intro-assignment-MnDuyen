@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Something interesting about me is I like cat and dog.
+* Ask Mr. Vu anything: Where did you born?
+* List your sports and extracurriculars you participate in: Badminton, volunteered at Nhan Hoa Clinic.
